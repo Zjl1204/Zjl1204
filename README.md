@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Zjl1204
 
-- 👀 I’m interested in sth. which can bring happiness to human-beings.
+- 👀 I’m interested in everything can bring happiness to human-beings.
 
-- 🌱 I’m currently learning how to program,emmmm means for developing or creat sth..But I don't know what's the first thing to do.
+- 🌱 I’m currently learning how to program,emmmm means for developing or creat sth.And now I am trying to use JAVA.
 
 English level：read & write 7points :)
 
